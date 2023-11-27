@@ -3,9 +3,9 @@
 
 - 💬 Ask me about **NLP models**
 
-- 📫 How to reach me **vkadnikov92@gmail.com**
+- 📫 How to reach me: **vkadnikov92@gmail.com**
 
-- ⚡ Fun fact **I am mountain ultramarathoner and big fan of trailrunning :)**
+- ⚡ Fun fact: **I am a mountain ultramarathoner and a big fan of trailrunning :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
