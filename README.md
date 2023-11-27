@@ -5,7 +5,7 @@
 
 - 📫 How to reach me: **vkadnikov92@gmail.com** | <a href="https://t.me/sibman054" target="_blank">Telegram</a>
 
-- ⚡ Fun fact: **I am a mountain ultramarathoner and a big fan of trailrunning :)**
+- ⚡ Fun fact: **I am a mountain ultramarathoner and a big fan of trail running :)**
 
 
 <h3 align="left">Languages and Tools:</h3>
