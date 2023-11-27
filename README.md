@@ -3,7 +3,7 @@
 
 - 💬 Ask me about **NLP models**
 
-- 📫 How to reach me: **vkadnikov92@gmail.com**
+- 📫 How to reach me: **vkadnikov92@gmail.com** | <a href="https://t.me/sibman054" target="_blank">Telegram</a>
 
 - ⚡ Fun fact: **I am a mountain ultramarathoner and a big fan of trailrunning :)**
 
